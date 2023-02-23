@@ -4,9 +4,9 @@ Perkenalkan nama saya **Dava Attabrani Akbar**.
 
 Saya seorang **Mahasiswa** di [Universitas Komputer Indonesia](https://www.unikom.ac.id/).  
 Saya memiliki Hobi seperti:  
-⚡ Videografi
-⚡ Fotografi
-⚡ Membuat Website
+⚡ Videografi  
+⚡ Fotografi  
+⚡ Membuat Website  
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/dava-attabrani-b584b0267/)ku ya.
 
